@@ -96,8 +96,8 @@ Ad Category Performance
 
 💻 Digital Readiness & Relaunch Prioritization
 Digital Readiness
-
+SIDDHANT www.linkedin.com/in/siddhant-katkar543
 🗂️ Data Model
-Data Model
+CREDITS:
 Rishita Singh
 Linkedin : https://www.linkedin.com/in/rishitasingh27/
